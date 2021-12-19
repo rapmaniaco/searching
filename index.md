@@ -11,7 +11,7 @@
 <p> "... working jobs we hate so we can buy shit we don't need." Tyler Durden <p/>
 
 
-* [The Less You Want, The More You Have | Minimalist Philosophy for Living in Abundance - Einzelgänger](https://www.youtube.com/watch?v=ZrMOLqgv714)
+* [The Less You Want, The More You Have - Einzelgänger](https://www.youtube.com/watch?v=ZrMOLqgv714)
 <p> The more we need to be satisfied, the less satisfied we become. <p/>
 
 
