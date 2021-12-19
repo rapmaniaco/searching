@@ -10,6 +10,7 @@
 <p> "The wealth require by nature is limited and is easy to procure; but the wealth require by vain ideals extends to infinity." Epicurus </p>
 <p> "... working jobs we hate so we can buy shit we don't need." Tyler Durden <p/>
 
+
 * [The Less You Want, The More You Have | Minimalist Philosophy for Living in Abundance - Einzelgänger]()
 <p> The more we need to be satisfied, the less satisfied we become. <p/>
 
